@@ -1,0 +1,6 @@
+- Hi, I am AYUB QAMAR
+- I’m interested in immunogenetics and immune response of Hepatitis-B patients.
+- I’m currently working on the Humen Leukocyte antigen, Complement system, and telomere length and their association with Hepatitis-B recovery in Pakistani and Chinese populations.
+- I am keenly interested in the immuno-informatics, viral Bioinformatics and their association with respect to disease outcomes.
+- 💞️ I’m looking to collaborate on both wet and dry analysis on the Hepatitis-B disease immune response and immunoinformatics of Hepatitis-B.
+- 📫 email address: mr.qamarayub@gmail.com, qamar_ayub@hotmail.com, 
